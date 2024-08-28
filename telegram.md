@@ -4,7 +4,7 @@
 
 # دانلود تلگرام ضد فیلتر
 
-[ لینک دانلود تلگرام ضد فیلتر](https://apkflare.fun//apk/Mobogram.apk)
+[ لینک مستقیم دانلود تلگرام ضد فیلتر](https://apkflare.fun//apk/Mobogram.apk)
 
 # دانلود تلگرام طلایی ضد فیلتر
 
